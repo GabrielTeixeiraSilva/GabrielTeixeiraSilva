@@ -1,3 +1,3 @@
-## Hi there, I'm Gabriel Teixeira Silkva 👋
+## Hi there, I'm Gabriel Teixeira Silva 👋
 
 
